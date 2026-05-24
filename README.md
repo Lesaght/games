@@ -50,5 +50,5 @@ PRs, suggestions, and ideas are welcome!
 ---
 
 **Contacts:**  
-[Telegram](https://t.me/yourtelegram)  
-[e-mail](mailto:your.email@example.com)
+[Telegram](https://t.me/Lesaght)  
+[e-mail](mailto:egormard13@gmail.com)
